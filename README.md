@@ -1,0 +1,2 @@
+# elensaputriiii
+hamkaa ganteng
